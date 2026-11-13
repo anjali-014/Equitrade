@@ -297,6 +297,14 @@ GitHub: https://github.com/anjali-014
 
 LinkedIn: https://linkedin.com/in/anjalisaini-nitp
 
+**Aditya Narayan**
+Electronics & Communication Engineering  
+National Institute of Technology Patna
+
+GitHub: https://github.com/aditya-narayan007
+
+LinkedIn: https://linkedin.com/in/narayanaditya178
+
 
 ---
 
